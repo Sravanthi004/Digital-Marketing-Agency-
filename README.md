@@ -1,1 +1,2 @@
 # Digital-Marketing-Agency-
+A digital marketing agency is a company that helps businesses grow and succeed online. It uses tools like search engine optimization (SEO), social media marketing, paid advertising, content creation, and email campaigns to promote products or services. The agency works on platforms like Google, Instagram, Facebook, and websites to increase visibility, attract more customers, and drive sales. Its main goal is to help businesses reach the right audience and get better results through smart online strategies.
